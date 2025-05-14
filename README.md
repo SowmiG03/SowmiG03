@@ -1,4 +1,4 @@
- I’m Sowmiya, Currently pursuing MCA at Pondicherry University⚡
+
  - Stepping my start🌱
 
 
